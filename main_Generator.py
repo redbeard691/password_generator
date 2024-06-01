@@ -1,1 +1,0 @@
-# Property of Nick Sturgeon
